@@ -1,1 +1,1 @@
-![alt text](https://icecube-eu-284.icedrive.io/thumbnail?p=mqEt%2FiBtQzeMVXOX11HQWJWTy99PSyzB6ElxM%2FfXVi%2FmbwbXfSPyrAO9zbRik7CCOWLbc3Z3M7vn69iNHln7xjKYZ%2FtPBoAGOFIeUmYT3ps9XQyIcut5ejv8ASS9knd0&w=1280&h=1280&m=cropped)
+![alt text](https://icecube-eu-284.icedrive.io/thumbnail?p=mqEt%2FiBtQzeMVXOX11HQWJWTy99PSyzB6ElxM%2FfXVi%2FmbwbXfSPyrAO9zbRik7CCOWLbc3Z3M7vn69iNHln7xjKYZ%2FtPBoAGOFIeUmYT3ps9XQyIcut5ejv8ASS9knd0&w=1280&h=1280&m=cropped = 250x250)
